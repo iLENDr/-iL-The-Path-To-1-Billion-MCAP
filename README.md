@@ -29,4 +29,4 @@ Learn More & Get Started
 
 Secure your business funding today and step into the future of finance with iLENDr MEME Pái ($iL) incentives!
 
-For more details on this revolutionary funding and reward model, visit www.iLENDr.com and explore the full scope of MEMENOMICS at www.github.com/iLENDr.
+For more details on this revolutionary funding and incentive model, visit www.iLENDr.com and explore the full scope of MEMENOMICS at www.github.com/iLENDr.
