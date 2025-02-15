@@ -8,9 +8,9 @@ How iLENDr's 1-for-1 $iL Token Incentive Program Works
 
 The iLENDr ecosystem is designed to empower businesses not just with working capital but also with digital assets that may provide additional value and utility. Here's how the program works:
 
-Step 1: Secure Funding - Businesses can apply for funding through iLENDr's AI-powered, Revenue-Based Funding solutions.
-Step 2: Get Funded - Upon approval, businesses receive their funding directly, backed by iLENDr's extensive network of over 75 institutional funders and MCA investors.
-Step 3: Earn $iL Tokens - For every $1 secured in funding, businesses will receive 1 $iL token - directly linking capital acquisition with digital asset incentives.
+* Step 1: Secure Funding - Businesses can apply for funding through iLENDr's AI-powered, Revenue-Based Funding solutions.
+* Step 2: Get Funded - Upon approval, businesses receive their funding directly, backed by iLENDr's extensive network of over 75 institutional funders and MCA investors.
+* Step 3: Earn $iL Tokens - For every $1 secured in funding, businesses will receive 1 $iL token - directly linking capital acquisition with digital asset incentives.
 
 Why This Matters for Business Owners
 
