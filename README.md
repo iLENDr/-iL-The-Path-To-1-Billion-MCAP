@@ -1,4 +1,3 @@
-# -iL-The-Path-To-1-Billion-MCAP
 $iL: The Path To $1 Billion MCAP
 
 iLENDr to Incentivize Business Merchants with iLENDr MEME Pái ($iL) Tokens on a 1-for-1 Basis
