@@ -14,12 +14,12 @@ Step 3: Earn $iL Tokens - For every $1 secured in funding, businesses will r
 
 Why This Matters for Business Owners
 
-This initiative provides multiple benefits to businesses looking for alternative funding solutions:
+* This initiative provides multiple benefits to businesses looking for alternative funding solutions:
 Instant Access to Capital - iLENDr's revenue-based models ensure fast and flexible funding without the restrictions of traditional loans.
 
-Blockchain-Based Incentives - Businesses now gain exposure to the iLENDr MEME Pái ($iL) token, which aligns them with cutting-edge blockchain technology.
+* Blockchain-Based Incentives - Businesses now gain exposure to the iLENDr MEME Pái ($iL) token, which aligns them with cutting-edge blockchain technology.
 
-Long-Term Value Creation - Holding $iL tokens could provide future utility, whether as a medium of exchange, governance asset, or tradeable digital MEME Pái.
+* Long-Term Value Creation - Holding $iL tokens could provide future utility, whether as a medium of exchange, governance asset, or tradeable digital MEME Pái.
 
 Leveraging iLENDr's Extensive Funding Network
 
