@@ -2,7 +2,7 @@ $iL: The Path To $1 Billion MCAP
 
 iLENDr to Incentivize Business Merchants with iLENDr MEME Pái ($iL) Tokens on a 1-for-1 Basis
 
-In a groundbreaking move that merges business funding with blockchain innovation, iLENDr is set to incentivize business merchants with iLENDr MEME Pái ($iL) tokens on a 1-for-1 basis. For every dollar a business secures through iLENDr's Revenue-Based Funding models, they will receive one $iL token - creating a seamless integration of business financing and digital assets.
+In a strategic move that merges business funding with blockchain innovation, iLENDr is set to incentivize business merchants with iLENDr MEME Pái ($iL) tokens on a 1-for-1 basis. For every dollar a business secures through iLENDr's Revenue-Based Funding models, they will receive one $iL token - creating a seamless integration of business financing and digital assets.
 
 How iLENDr's 1-for-1 $iL Token Incentive Program Works
 
