@@ -7,7 +7,7 @@ For every dollar a business secures through iLENDr's Revenue-Based Funding model
 
 How iLENDr's 1-for-1 iLENDr MEME Pái ($iL) Incentive Program Works
 
-The iLENDr ecosystem is designed to empower businesses not just with working capital but also with digital assets that may provide additional value and utility. Here's how the program works:
+The iLENDr ecosystem is designed to empower businesses not just with working capital but also with digital assets. Here's how the program works:
 
 * Step 1: Secure Funding - Businesses can apply for funding through iLENDr's AI-powered, Revenue-Based Funding solutions.
 * Step 2: Get Funded - Upon approval, businesses receive their funding directly, backed by iLENDr's extensive network of over 75 institutional funders and MCA investors.
