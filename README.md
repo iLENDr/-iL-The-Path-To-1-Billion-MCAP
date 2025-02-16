@@ -15,7 +15,8 @@ The iLENDr ecosystem is designed to empower businesses not just with working cap
 
 Why This Matters for Business Owners
 
-* This initiative provides multiple benefits to businesses looking for alternative funding solutions: Instant Access to Capital - iLENDr's revenue-based models ensure fast and flexible funding without the restrictions of traditional loans.
+This initiative provides multiple benefits to businesses looking for alternative funding solutions:
+* Instant Access to Capital - iLENDr's revenue-based models ensure fast and flexible funding without the restrictions of traditional loans.
 * Blockchain-Based Incentives - Businesses now gain exposure to the iLENDr MEME Pái ($iL), which aligns them with cutting-edge blockchain technology.
 * Long-Term Value Creation - Holding iLENDr MEME Pái ($iL) could provide future use case, utility, or scalable digital art markets.
 
